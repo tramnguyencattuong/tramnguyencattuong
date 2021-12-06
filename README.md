@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tramnguyencattuong
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently living in Vietnam
 - 📫 How to reach me : tuong.tnc@jobseekers.vn
 
 <!---
